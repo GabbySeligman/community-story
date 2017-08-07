@@ -4,4 +4,4 @@ It's simple, you can send a PR with the continue of the story.
 **PLEASE DON'T BE VULGAR**
 
 <br/>
-In a galaxy far far away...
+In a galaxy far far away, it was just me, the only girl on planet Boring.
